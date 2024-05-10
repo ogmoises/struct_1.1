@@ -1,2 +1,0 @@
-Moises de Araújo Altounian
-200069306
